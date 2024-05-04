@@ -1,4 +1,4 @@
-### Hi there 👋
+### Olá :) 👋
 
 Estudante de Pedagogia e aspirante à desenvolvedora / 
 De Cachoeira/BA mas morando em Salvador 
